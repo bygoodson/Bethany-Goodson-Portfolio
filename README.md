@@ -1,4 +1,4 @@
-images/Banner Picture.jpg
+![](/images/Banner Picture.jpg)
 
 # Bethany Goodson
 Contact Info: bygoodson@loyola.edu
