@@ -9,7 +9,7 @@ With skills in graphic design, social media management, leadership, and content 
 
 My versatile skill set, commitment to collaboration, and passion for amplifying meaningful messages make me a valuable asset. In my spare time, I like to create digital art and explore different cultures through travel and food. 
 
-You can find me on https://www.linkedin.com/in/bethany-goodson-022175264.  
+You can find me on Linkedin at https://www.linkedin.com/in/bethany-goodson-022175264.  
 
 ### Education 
 Loyola University Maryland
